@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **ashishlathkar7@gmail.com**
 
-- 📄 Know about my experiences [My Resume](https://fsu-my.sharepoint.com/:b:/g/personal/al23s_fsu_edu/EbKmunTvGrRBm-64pXFutiMBUjz58i_Lf76mH1bB6Xrs3A?e=KoSIFf)
+- 📄 Know about my experiences [My Resume](https://drive.google.com/file/d/19_zyXGlLFFZo5JjPC95x44b7BN1Oysqh/view?usp=sharing)
 
 - ⚡ Fun fact **It's a Secret**
 
